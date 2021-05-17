@@ -1,10 +1,4 @@
-- 👋 Hi, I’m @vvp1952dom007
-- 👀 I’m interested in overseas employment and living opportunities
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me vvp1952dom007@yandex.com +61437000007 +61450709600 https://www.linkedin.com/in/unity007 https://m.vk.com/vvp1952dom007 https://bankofpartners.com/user/profile?id=42401 
+- 👋 Hi,My name is Domenic
+- 👀 I’m would love a chance and opportunity for overseas employment and living opportunities i have experience in the security driving and sporting areas mainly
+- 📫 How to reach me vvp1952dom007@yandex.com +61437000007 +61450709600 +61426370913 https://www.linkedin.com/in/unity007 vvp1952dom007@yandex.com vvp1952dom007@yandex.ru
 
-<!---
-vvp1952dom007/vvp1952dom007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
